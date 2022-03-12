@@ -1,0 +1,3 @@
+- ✌  Olá, me chamo KelvinKinas.
+- 😎 Me interesso por programação e manutenção de computadores.
+- 🤗 No momento estou me dedicando a ambos citados acima.
