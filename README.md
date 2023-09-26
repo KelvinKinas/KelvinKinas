@@ -1,5 +1,5 @@
 
 
 - ✌  Hello, I'm Kelvin
-- 😎 I like pragram and play games
-- 🤗 I'm making this because the school
+- 😎 I like program and play games
+- 🤗 I'm making it because the school force me
